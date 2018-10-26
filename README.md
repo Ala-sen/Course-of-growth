@@ -2,4 +2,4 @@
 The course of ala-sen's growth.
 
 Hello, my friends!
-Today is October 25.
+The date is October 26.
